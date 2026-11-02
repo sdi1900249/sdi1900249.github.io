@@ -1,1 +1,1 @@
-# sdi1900249.github.io.
+# sdi1900249.github.io
